@@ -23,7 +23,7 @@ Reach out to me on [LinkedIn](https://www.linkedin.com/in/fadhlil-naufal-mahardi
 
 ---
 
-✨ _"Always curious, continuously learning, and striving to build impactful technology solutions."_ ✨
+✨ _"Always curious, continuously learning"_ ✨
 
 
 <!--
